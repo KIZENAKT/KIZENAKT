@@ -1,4 +1,4 @@
-## KIZENAKT
+## KIZEN
 
 - Mechanical Engineering student.
 - Interested in Cars, Robots,, that kind of stuff
